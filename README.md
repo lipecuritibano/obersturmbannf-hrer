@@ -1,2 +1,2 @@
 # obersturmbannf-hrer
-Ich spreche Englisch
+Ich spreche Englisch, deutsch
